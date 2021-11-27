@@ -2,7 +2,10 @@
 
 ## Abusive Relationships
 
-[Shame is the Raid Boss of Emotions](https://www.youtube.com/watch?v=wSDTYTIJVrs)
+- [How Do I ESCAPE The Jehovah's Witnesses?](https://www.youtube.com/watch?v=fszSLflChFg)
+    - You are not responsible for how others feel about your actions.
+    - Emotionally hostage - Making you feel like you are responsible for everyone else's feelings.
+    - Guilt is a negative emotion based on love - For lots of abusive relationships, guilt is a emotional manipulation based on love.
 
 
 ## Communication in Relationships, understanding what your needs are around relationships 
