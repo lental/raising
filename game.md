@@ -28,6 +28,9 @@ These quests can be dailys, weeklys, or ad-hoc. Quests
   - Washing a car
   - Getting groceries
   - Therapy time (chatting with the parent for an hour about something that's bothering you, or that you need help with)
+- Persistent
+  - Get good grades
+  - 
 
 ### Rewards
 - Have a weekly target of X quests completed. Have an allowance based off this target.
