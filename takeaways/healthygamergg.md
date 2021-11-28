@@ -16,5 +16,6 @@
 
 ## 
 - [Burden of Potential](https://www.youtube.com/watch?v=Y6XCoeh7rBA)
-    - Introspection is more important than comparing ourself to others. 
-    - jjh hjh
+  - Introspection is more important than comparing ourself to others. 
+- [Why High Achieving People Have Low Self Worth](https://www.youtube.com/watch?v=EW3zcZ7LjXY)
+  - The worst thing to do to high achieving people is to make them feel average. Being high achieving in elementary or high school, then being told your average in college is hard to process
